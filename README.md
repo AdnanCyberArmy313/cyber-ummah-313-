@@ -1,2 +1,2 @@
-# cyber-ummah-313-
-Cyber Ummah 313 এর নিয়মিত আমলের ওয়েবসাইট
+# Cyber Ummah 313
+দৈনিক আমল ওয়েবসাইট
